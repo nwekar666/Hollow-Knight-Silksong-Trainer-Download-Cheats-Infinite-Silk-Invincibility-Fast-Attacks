@@ -87,9 +87,6 @@ A: Убедитесь, что выбрана правильная версия �
 
 ---
 
-<details>
-<summary>SEO Keywords</summary>
-
 # English
 hollow knight silksong trainer
 hollow knight silksong trainer free
@@ -234,20 +231,3 @@ silksong cheats 2025
 حرير غير محدود hollow knight silksong
 مال غير محدود hollow knight silksong
 
-
-</details>
-
-
-
----
-
-Hollow Knight: Silksong Trainer / Читы / Трейнер (Русский + English)
-Hollow Knight Silksong Trainer — Vida infinita, Modo Dios, Teleport (ES)
-Hollow Knight Silksong Trainer — Unsterblichkeit, Cheats, Hack (DE)
-Hollow Knight Silksong Trainer — Mods, Téléchargement, Santé infinie (FR)
-空洞骑士：丝之歌 修改器 — 无限生命, 修改器下载, Trainer (CN)
-Download Hollow Knight: Silksong Trainer (PC) — Best Cheats: God Mode, Infinite Silk, Unlimited Geo
-Hollow Knight Silksong Trainer 2025 — Mods, Hacks, One Hit Kill, Teleport, Cheat Codes
-Free Hollow Knight: Silksong PC Trainer — Cheat Engine Table + Mods
-Hollow Knight Silksong Cheats & Trainer — Unlock All Skills, Infinite Resources, Super Speed
-Best Hollow Knight: Silksong Trainer for PC — God Mode, Silk Meter Hack, Unlimited Money
