@@ -2,6 +2,12 @@
 
 [![⬇️ Скачать трейнер](https://img.shields.io/badge/Download-Trainer-blue?style=for-the-badge&logo=github)](https://example.com/silksong-trainer-download)  
 
+<img width="646" height="730" alt="изображение" src="https://github.com/user-attachments/assets/dabd1c3d-dc9b-450a-88c9-048a7f593924" />
+<img width="649" height="727" alt="изображение" src="https://github.com/user-attachments/assets/92ce152e-bb64-4953-b32c-2a57d7bad552" />
+<img width="642" height="719" alt="изображение" src="https://github.com/user-attachments/assets/8812f40e-be94-46c7-8bc1-643af4b0ec78" />
+
+
+
 > ✅ Нажмите на кнопку выше, чтобы скачать последнюю версию трейнера Hollow Knight: Silksong (поддержка Windows 10/11).  
 > Версия: **v1.0.0** | Обновлено: **2025** | Статус: ✔ Работает  
 
@@ -85,3 +91,14 @@ A: Убедитесь, что выбрана правильная версия �
 hollow knight silksong trainer, hollow knight silksong cheats, hollow knight silksong god mode, hollow knight silksong infinite silk, hollow knight silksong cheat engine, hollow knight silksong hack, hollow knight silksong mods, hollow knight silksong one hit kill, hollow knight silksong teleport, hollow knight silksong cheat download, hollow knight silksong pc trainer, hollow knight silksong cheat codes, hollow knight silksong cheat table, hollow knight silksong cracked trainer, hollow knight silksong hack trainer, hollow knight silksong cheat mod, hollow knight silksong gameplay cheats, hollow knight silksong walkthrough trainer, hollow knight silksong trainer windows, hollow knight silksong unlimited health, hollow knight silksong cheat free, hollow knight silksong invincibility, hollow knight silksong immortal mode, hollow knight silksong jump hack, hollow knight silksong speed hack, hollow knight silksong mods hack, hollow knight silksong hacks 2025, silksong trainer, silksong cheats, silksong hack, silksong god mode, silksong mods, silksong trainer pc, silksong cheat codes
 
 ---
+
+Hollow Knight: Silksong Trainer / Читы / Трейнер (Русский + English)
+Hollow Knight Silksong Trainer — Vida infinita, Modo Dios, Teleport (ES)
+Hollow Knight Silksong Trainer — Unsterblichkeit, Cheats, Hack (DE)
+Hollow Knight Silksong Trainer — Mods, Téléchargement, Santé infinie (FR)
+空洞骑士：丝之歌 修改器 — 无限生命, 修改器下载, Trainer (CN)
+Download Hollow Knight: Silksong Trainer (PC) — Best Cheats: God Mode, Infinite Silk, Unlimited Geo
+Hollow Knight Silksong Trainer 2025 — Mods, Hacks, One Hit Kill, Teleport, Cheat Codes
+Free Hollow Knight: Silksong PC Trainer — Cheat Engine Table + Mods
+Hollow Knight Silksong Cheats & Trainer — Unlock All Skills, Infinite Resources, Super Speed
+Best Hollow Knight: Silksong Trainer for PC — God Mode, Silk Meter Hack, Unlimited Money
