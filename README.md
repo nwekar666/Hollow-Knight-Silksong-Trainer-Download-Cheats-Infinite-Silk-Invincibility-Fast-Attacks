@@ -15,7 +15,7 @@
 - 1 Перейдите по ссылке и скачайте архив с трейнером.  
 - 2 Распакуйте файлы в любую удобную папку.  
 - 3 Запустите игру Hollow Knight: Silksong.  
-- 4 Откройте `SilksongTrainer.exe` и нажмите **Attach to Process**.  
+- 4 Откройте `Hollow-Knight-Silksong-Trainer` и нажмите **Attach to Process**.  
 - 5 Используйте горячие клавиши для активации функций.  
 
 ---
