@@ -1,4 +1,4 @@
-# Hollow Knight: Silksong Trainer ⚔️  
+# Hollow Knight Silksong Trainer Free-Cheats Infinite Silk Invincibility Fast-Attacks ⚔️  
 
 [![⬇️ Скачать трейнер](https://img.shields.io/badge/Download-Trainer-blue?style=for-the-badge&logo=github)](https://example.com/silksong-trainer-download)  
 
